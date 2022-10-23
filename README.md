@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @444677 named Mark 
 - 👀 I’m interested in games 
-- 🌱 I’m currently learning 5 school 
-- 💞️ I’m looking to collaborate on ...
+- 🌱 I’m currently learning 3 schools in Poland  
+- 💞️ I’m looking to collaborate on Igrulyam 
 - 📫 How to reach me me email 228strelokstalker228@gmail.com 
 pupils336@sc5pv.ukr.education
 
